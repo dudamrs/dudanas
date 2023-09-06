@@ -5,4 +5,6 @@ _Amo viajar para praia_ 🌊☀️
 
 _Meu sonho e conhecer NYU,e a Italia_ 🗽,🇮🇹
 
+_Style-Taylor Swift_
+
 _Meu melhores projeto são
