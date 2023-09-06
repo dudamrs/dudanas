@@ -3,4 +3,4 @@ _Sou Maria Eduarda, estudante do 1º ano do ensino médio, do colégio Branca da
 
 _Amo viajar para praia_ 🌊☀️
 
-_Meu sonho e conhecer NYU,e a Italia_ 🗽
+_Meu sonho e conhecer NYU,e a Italia_ 🗽,🇮🇹
