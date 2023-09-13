@@ -8,7 +8,7 @@ _Meu sonho e conhecer NYU,e a Italia_ 🗽,🇮🇹
 _Style-Taylor Swift_
 
 _Meus melhores projeto são_
-[_quando os humanos nao estao olhando_](https://scratch.mit.edu/projects/823659673)
+[quando os humanos nao estao olhando](https://scratch.mit.edu/projects/823659673)
 
 
 
